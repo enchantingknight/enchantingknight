@@ -3,9 +3,11 @@
 [![Hits](https://hits.sh/github.com/enchantingknight.svg?label=nulls&extraCount=57&color=0d0d0f)](https://hits.sh/github.com/enchantingknight/)
 
 <details>
-  <summary> (＞。☆) </summary>
+  <summary> (＞。☆) !  </summary>
 
-  get rick rolled
+  <sub> for pt info
+  dont copy, if u wana take inspo ask first </sub>
+  
 
 </details> 
 
