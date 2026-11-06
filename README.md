@@ -8,12 +8,10 @@
   <sub> for pt info
   dont copy, if u wana take inspo ask first </sub>
 
-![](https://i.postimg.cc/k4XssP1n/Commander-Unstable-SMP-(1).jpg)
-
-  
-  <sub> c+h enc but w2i is advised as im usually offtab or zoned out </sub>
-  
-  <sub> i dont talk often so sorry,, </sub>
+![](https://i.postimg.cc/k4XssP1n/Commander-Unstable-SMP-(1).jpg) \
+<sub> c+h enc but w2i is advised as im usually offtab or zoned out</sub> \
+<sub> i don't talk often so sorry,, </sub> \
+<sub> [ata](https://enchantment.atabook.org/)  &emsp;  &emsp; [straw](https://enchantingknight.straw.page/) </sub>
   
   
 
