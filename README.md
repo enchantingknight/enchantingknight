@@ -6,7 +6,7 @@
   <summary> (＞。☆) !  </summary>
 
   <sub> for pt info
-  dont copy, if u wana take inspo ask first </sub>
+  dont copy please bro, if u wana take inspo ask first </sub>
 
 ![](https://i.postimg.cc/k4XssP1n/Commander-Unstable-SMP-(1).jpg) \
 <sub> c+h enc but w2i is advised as im usually offtab or zoned out</sub> \
