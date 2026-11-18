@@ -20,8 +20,9 @@
 <summary> 一 </summary>
   
   <sub> c+h enc but w2i is advised as im usually offtab or zoned out </sub> \
-  <sub> don't copy me, ask if you wanna take inspo i don't bite </sub>
-</details>
+  <sub> don't copy me, ask if you wanna take inspo i don't bite </sub> \
+  <sub> i luv all my friends Ი𐑼 </sub>
+  </details>
   
 
 
